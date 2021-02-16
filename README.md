@@ -12,6 +12,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about git and github
 - 📫 How to reach me: seri.kajuluri@gmail.com
 - 😄 Pronouns: ...he,him,she,her,me
-- ⚡ Fun fact: ...the stongest muscle in the body is the tongue
-I'm the most angrybird 😡😡😡,love my world🖤🖤🖤
+- ⚡ Fun fact: ...the stongest muscle in the body is the tongue 
+-👉I'm the most angrybird 😡😡😡,love my world🖤🖤🖤
 
