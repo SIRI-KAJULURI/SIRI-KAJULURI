@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently studying in elecricals and communications technology
+- 🔭 I’m currently studying in electricals and communications technology
 - 🌱 I’m currently learning mathematics
 - 👯 I’m looking to collaborate on top technologies in artificial intelligence
 - 🤔 I’m looking for help with c programming
